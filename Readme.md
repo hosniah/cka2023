@@ -13,7 +13,11 @@ https://vistaprint.zoom.us/rec/share/XMX6f4wygD7_4f-yHKUrR4NKlxZCAudaaOwb-CZv1Kd
 Passcode: 2m?C&@Wt
 
 ## March 16th
+https://vistaprint.zoom.us/rec/share/ZPmAJEBR3A8d4bCeYsCWQXrWUkDwW0qEWvk9BRHc_vMeFLvl5RwEIIbnanwJ8X0O.5odlPmvVbbmidUyG 
+Passcode: QP2j^PKp
 
 ## March 17th
+https://vistaprint.zoom.us/rec/share/05h8LSL_tf3L27FzJVHkA6MaLX9bQySmP8UdzrrqgVfB_FDfMLrOw7Zw0Gdjaugv.LMPL_kQxRR93UGMi 
+Passcode: ND2CF.wn
 
 
